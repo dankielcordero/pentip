@@ -1,2 +1,2 @@
 # pentip
-blogy
+Nezkoušej to zkopírovat nebo si tě najdu
